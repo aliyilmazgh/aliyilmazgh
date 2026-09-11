@@ -5,13 +5,13 @@
 
 <p align="left"> <a href="https://twitter.com/" target="blank"><img src="https://img.shields.io/twitter/follow/?logo=twitter&style=for-the-badge" alt="" /></a> </p>
 
-- 🔭 I’m currently working on **new full stack project**
+- 🔭 **I’m currently on new adventures**
 
-- 💬 Ask me about **MERN Stack**
+- 💬 Ask me about: **MERN Stack**
 
-- 📫 How to reach me **alirizayilmaz.iletisim@gmail.com**
+- 📫 Reach me out: **alirizayilmaz.iletisim@gmail.com**
 
-- ⚡ Fun fact **Fact is fact.**
+- ⚡ **SUBSCRIBE PLS: www.youtube.com/@aliyilmazyt**
 
 <h3 align="left">Connect w/ me:</h3>
 <p align="left">
