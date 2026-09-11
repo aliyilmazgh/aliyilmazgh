@@ -11,7 +11,7 @@
 
 - 📫 Reach me out: **alirizayilmaz.iletisim@gmail.com**
 
-- ⚡ **SUBSCRIBE PLS: www.youtube.com/@aliyilmazyt**
+- ⚡ **SUBSCRIBE PLS: www.youtube.com/@alirizayilmazyt**
 
 <h3 align="left">Connect w/ me:</h3>
 <p align="left">
